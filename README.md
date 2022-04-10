@@ -1,1 +1,1 @@
-# patika-dev-ilk-web-sayfas-
+# patika-dev-ilk-web-sayfası-
